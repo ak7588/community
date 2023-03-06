@@ -1,3 +1,3 @@
-# Test project
+# Welcome to the IM Community Stories and Voices!
 
-## This for the IM stories from graduating seniors...and beyond
+## Graduating seniors and other IM students, please feel free to use this space to share your IM stories and answer questions from the community :)
